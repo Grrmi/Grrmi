@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Grrmi
+- 👀 I’m interested in CryptoCurrency & CS:GO
+- 🌱 I’m currently learning Crypto and Steam Market
+- 📫 How to reach me by instagram on @5rov.boris
